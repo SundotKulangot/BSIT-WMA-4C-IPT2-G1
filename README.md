@@ -1,1 +1,0 @@
-# BSIT-WMA-4C-IPT2-G1
